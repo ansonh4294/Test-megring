@@ -1,3 +1,3 @@
-1I
+I
 like
-eating a lot of food.
+eating a lot of cnday.
